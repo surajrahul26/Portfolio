@@ -15,5 +15,4 @@ I’m currently pursuing **BCA** with a focus on **Cybersecurity**, and this spa
 
 - [LinkedIn](https://www.linkedin.com/in/suraj-vishwakarma-53a642293)  
 - [GitHub](https://github.com/surajrahul26)  
-- [Telegram](https://t.me/surajrahul)  
 - [X (Twitter)](https://x.com/Surajrahul26)
